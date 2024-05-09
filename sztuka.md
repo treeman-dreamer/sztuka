@@ -124,3 +124,34 @@ Czasem trzeba móc pozwolić komuś odejść, być samemu, dać mu przestrzeń. 
 
 Bycie razem to nie jest ciągłe dbanie o to, żebyśmy obydwoje byli w komforcie. 
 Nie ma związku, który byłby bez konfliktów.
+
+### 7.05.2024
+Co to znaczy być gotowym na związek? Niektórzy mówią, że nigdy nie jest się gotowym. 
+
+Każdy z nas ciągnie za sobą jakiś bagaż doświadczeń. 
+I każdy z nas ma swoje wzorce np. tego, co powinien robić mężczyzna, a co kobieta, jak mogą się do siebie zwracać, co można robić itp.
+Warto przegadywać swoje wzorce. Bo my je mamy, każdy ma trochę inne. I warto zastanawiać się, czy wzorce nami nie rządzą.
+Bo: one potrafią być silniejsze od naszych pragnień, obranych celów czy zdrowego rozsądku. 
+Warto przegadać: jak zapatrujemy się na naszą sferę seksualności? 
+
+Uważaj też: nie twórz fałszywego obrazu ciebie. Nawet nieświadomie.
+Presja potrafi zranić. 
+
+Warto się zastanowić:
+
+Przed wejściem w związek zadaj sobie też pytania:
+- Jakie korzyści mogą nas nakłonić do nawiązania relacji?
+- Jakie potrzeby zamierzam zrealizować?
+- Na czym zależy mi w związku?
+- Czy przeszkadza ci to, że jesteś sam/sama?
+- Czy chcesz to zmienić i po co chcesz to zmienić?
+- Czego chcesz w zamian?
+- Co będzie lepsze dla ciebie i z jakiego powodu tak uważasz.
+
+Nie chodzi o to, żeby być skończonym gotowym produktem.
+
+Są przekonania, które UTRUDNIAJĄ życie np.:
+- "Miłość trafia się w życiu w sposób niezależny od nas i spada na człowieka jak grom z jasnego nieba"
+- "Prawdziwa miłość to odnalezienie swojej magicznej połówki. Połączenie z nią tworzy całość, lepszą od niekompletnej części."
+- "Miłość to nieustający kompromis/rywalizacja."
+
