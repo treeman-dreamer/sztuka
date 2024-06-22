@@ -155,3 +155,49 @@ Są przekonania, które UTRUDNIAJĄ życie np.:
 - "Prawdziwa miłość to odnalezienie swojej magicznej połówki. Połączenie z nią tworzy całość, lepszą od niekompletnej części."
 - "Miłość to nieustający kompromis/rywalizacja."
 
+
+### 14.05.2024
+Nic ciekawego. Jakaś baba przyszła i mówiła o tym, że wszystkie dziewczyny są piękne, cudowne, zasługują na miłość itd. bla bla bla
+O chłopach nic nie mówiła co ciekawe.
+
+### 21.05.2024
+Każdy kolejny związek jest trochę inny niż poprzedni. Związek sprawia też, że sami się dużo uczymy o sobie.
+Jeśli wasza relacja dobiegła końca, to warto dobrze domknąć tę relację.
+
+
+### 28.05.2024
+Ważna jest dobra pewność siebie w niepewności samego siebie. Świadomość własnych słabości i związanych z tym ryzyk. Pewność w nieufności samemu sobie.
+Będą się w tobie otwierały pragnienia, których zwyczajnie nie chcesz. Każdy z nas ma w sobie moment słabości którego nie zna.
+Świadomość, że masz swoje słabości będzie ci pozwalała pozostać wiernym.
+
+Doświadczenie bycia zdradzonym jest bardzo trudne. Lepiej przez jakiś czas nic nie tłumaczyć. To bardzo trudne, bo osoba zdradzona musi przejść długą fazę złości (czy wręcz nienawiści) do ciebie, zanim wróci to do normalnych uczuć. 
+Bo ta osoba będzie teraz odbierać wszystkie twoje działania w kluczu tej zdrady. Teraz ona na nowo musi odbudować cały swój świat. Na to może potrzebować lat.
+I to wysadza wszystko co było wcześniej dobre. To całkowicie resetuje relację, wyzerowuje ją, teraz trzeba wszystko zbudować na nowo.
+
+Bardzo możliwe, że w małżeństwie zdarzy ci się zakochanie w kimś innym. Będąc w związku, lepiej nie otwierać tego, że jest się w kimś innym zakochanym.
+
+Jeśli zdarzyła się tobie JEDNORAZOWA zdrada - to nie mów o tym współmałżonkowi. Jeśli więcej razy - to już gruba sprawa, musicie iść na terapię, musicie ratować to co jest, to co jeszcze stoi, i dbać o to. Ale jeśli jeden raz - to nie mów. Bo to całkowicie wysadza wszystko. Teraz to, z czym ty się zmagałeś, musi udźwignąć druga osoba, przerzucasz ten ciężar na drugą osobę. I na nowo trzeba wszystko wybudować.
+
+Jeśli jeszcze przed ślubem ktoś cię zdradza, to uciekaj. Nie pchaj się w ten związek. Na starcie chcesz w to iść z nieufnością do współmałżonka? No właśnie.
+
+### 4.06.2024
+Jaki jest sens narzeczeństwa? To takie sformalizowanie w sumie tego, że bierzemy ten związek na poważnie.
+
+Warto mieć własne rytuały, nawyki w związku, bo wtedy to uwalnia od takiego ciągłego szukania i zaangażowania. I nie trzeba wtedy niczego nowego wymyślać, tylko jest poukładane, więc można to robić na automacie. Potęga nawyku.
+
+I dzieki temu gość mówi: "Gdybym miał podsumować ciekawe rzeczy w ostatnim miesiącu, to to wszystko byłyby rzeczy związane z moim małżeństwem i dziećmi." Warto wprowadzać własne rytuały, np. na początku związku "zawsze w czwartki się spotykamy".
+
+Dobrze jest mieć kalendarz własnych wydarzeń. Dzięki temu kalendarzowi wszyscy wiedzą, co gdzie kiedy (w tym dzieci). I to daje taką perspektywę, że wiemy, czego się spodziewać i nie musimy tak ciągle szukać i angażować się.
+
+Są 3 sfery zaangażowania: praca, przyjaźnie, miłość. Warto mieć rytuały względem wszystkich tych sfer. Chodzi o to, żeby nie marnować myślenia na to. Np. odwiedzamy rodziców raz w miesiącu.
+
+
+Każdy z nas ma swoje fazy. Faza w której bardzo potrzebujesz bliskości i faza, w której bardzo potrzebujesz samotności. Warto jest nauczyć się komunikować to drugiej osobie. Np. "Ile potrzebujesz? Godziny bycia samemu?" itp.
+Mogą być takie sytuacje, że np. już w pracy miałeś mnóstwo ludzi wokół siebie i chcesz odpocząć od ich towarzystwa. A wracasz do domu i tam też są ludzie.
+
+Rady od jakiegoś chłopa z długim stażem małżeńskim:
+- być dla siebie czułym w słowach i gestach
+- mówić sobie często "kocham cię"
+- mieć czas tylko dla siebie
+- pamiętać o rocznicach, celebrować je
+
