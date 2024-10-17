@@ -201,3 +201,49 @@ Rady od jakiegoś chłopa z długim stażem małżeńskim:
 - mieć czas tylko dla siebie
 - pamiętać o rocznicach, celebrować je
 
+### Źródło anonimowe
+Będąc w związku, generalnie to nie może być tak, że nie jesteś w stanie żyć bez kogoś. Musisz **nie musieć** z kimś żyć. Jakiś wyjazd, nagła rozłąka i co? To super, że chcesz z kimś żyć. Ale nie może być tak, że musisz.
+
+
+### Aga Rogala, 17.10.24
+Przychodzi taki moment w życiu, że widzimy w rodzicach głównie ich wady, błędy, potknięcia. "Ja zrobię inaczej." -- ale musi być tak, że ROZUMIEM, dlaczego tak robią, dlaczego tak wybierają. Co kierowało jej decyzją? Czy to była ich wola, choroba?
+
+Np. "podejmę taką decyzję, bo moja matka zrobiłaby coś dokładnie odwrotnego" -- to nie jest wolność od rodziców. 
+
+Nierzadko za ambicjami, za wartościami, za zachowaniem tej dwójki stoją ich przodkowie (babcia, dziadek).
+
+Nieporozumienia między pokoleniami zawsze będą. 
+
+"Bierzemy ślub z historią drugiego człowieka. Z tłumem ludzi."
+Mnóstwo nieuświadomionych, niewypowiedzianych oczekiwań, założeń. Nie wystarczy wyobrazić sobie siebie jako rodzica -- to górka życzeń tylko. Ale co zrobić, żeby faktycznie tak było?
+
+Jednym z najczęstszych problemów małżeństwie jest "interpretowanie" zachowań.
+
+Trzeba w związku opowiadać o rodzicach swoich, o historiach z rodzicami! Jedna osoba nie wystarczy. Tego potrzeba dużo. Czasem trzeba sobie coś przypomnieć, coś przemyśleć, uświadomić sobie. Jeśli nosicie jakieś trudne historie (w tym rodzinne), to warto o tym gadać, nawet jeśli trudno o tym gadać.
+
+*Najczęściej jak pary trafiają na terapię par, to mówią "Mamy problemy z komunikacją". Radzę uczyć się komunikacji przed ślubem.*
+
+*Jak się rodzi dziecko, to kamień na kamieniu nie zostaje z poprzedniego życia.* Co do zasady, wszystko się zmieni.
+
+Zadaniem dziecka nie jest spełnianie moich potrzeb.
+Dziecko ma sobie podrosnąć **i pójść.** Z zaufaniem do swoich umiejętności. 
+
+Dziecko potrzebuje rodziców, którzy mają ze sobą dobrą relację. Chcesz być dobrym rodzicem -- zatroszcz się o swój związek! 
+Rodzicielstwo jest zaprojektowane dla dwojga. Ona sama sobie z tym nie poradzi. 
+
+Częsty błąd: *"Wiem, czego nie chcę". Ale to nie znaczy, że wiem jak zrobić to, czego chcę!* 
+Np. "tak mnie rodzice u mnie cisnęli, więc u mnie będzie inaczej." 
+
+Jeśli robisz coś przeciwnie, niż robili tobie rodzice, to nie robisz tego z myślą o dziecku. Robisz to z myślą o SOBIE!
+
+Dzieci obudzą w was potwory i traumy, i trupy z szafy wypadną. Niewyrażone emocje w życiorysie. 
+
+Konflikt w związku = update relacji.
+
+Nie da się zrobić 50-50. Czasem będą dni, że będzie 80-20, czasem będzie 20-80. Jesteśmy dla siebie wsparciem.
+
+Pierwszy filar dobrostanu związku: rozmowa i wspólny czas.
+
+Jeśli ktoś myśli, że "no dobra, jak nam się nie będzie układać, to pójdę do kogoś innego", to zdefiniuj, gdzie jest granica między "układaniem" a "nieukładaniem".
+
+"Co jednak mimo wszystko tym rodzicom wyszło? Co działa?"
