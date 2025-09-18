@@ -247,3 +247,13 @@ Pierwszy filar dobrostanu związku: rozmowa i wspólny czas.
 Jeśli ktoś myśli, że "no dobra, jak nam się nie będzie układać, to pójdę do kogoś innego", to zdefiniuj, gdzie jest granica między "układaniem" a "nieukładaniem".
 
 "Co jednak mimo wszystko tym rodzicom wyszło? Co działa?"
+
+
+### 18.03.2025
+Może to dla niektórych oczywiste, ale:
+Stany dużej radości, złości, smutku NIE SĄ momentami do podejmowania ważnych decyzji. To nie jest właściwy czas na to. Jeśli jesteś bardzo zły, smutny albo przeciwnie -- w jakimś radosnym uniesieniu -- nie podejmuj wtedy ważnych decyzji.
+To nie jest dobry moment na to. Czas na ważne decyzje jest wtedy, kiedy czujesz się normalnie.
+
+Ponadto,
+No, warto mieć jakieś sposoby na przechodzenie przez trudne sytuacje typu złość, gniew itp.. Bo jednak one zawsze będą się pojawiały. Warto znajdować rzeczy, które ułatwiają nam przechodzenie przez te trudne momenty.
+
